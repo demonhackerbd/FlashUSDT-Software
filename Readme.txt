@@ -7,6 +7,6 @@ Crypto Wallets-
 
 This Software Life time
 
-Telegram- @Demonhackerbd
+Telegram- @AllflashBTC_USDT
 
 website : https://btcflashing.weebly.com
