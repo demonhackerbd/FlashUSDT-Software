@@ -7,6 +7,6 @@ Crypto Wallets-
 
 This Software Life time
 
-Telegram- @demonhackerbd
+Telegram- @cryptoTAB_Flash
 
 website : https://btcflashing.weebly.com
