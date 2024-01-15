@@ -9,4 +9,6 @@ This Software Life time
 
 Telegram- @cryptoTAB_Flash
 
+Discord : https://discord.com/invite/XSqcyVqz
+
 website : https://btcflashing.weebly.com
