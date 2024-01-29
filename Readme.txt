@@ -91,7 +91,7 @@ Note : There is no need to waste your and my time with unnecessary things🤷
 
 
 CONTACT ONLY FOR BUY Product
-Telegram- @cryptoTAB_Flash
+Telegram- http://t.me/cryptoTAB_Flash
 
 
 
