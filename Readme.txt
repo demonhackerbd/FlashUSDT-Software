@@ -28,7 +28,7 @@ Crypto Wallets-
 
 𝔽𝕝𝕒𝕤𝕙 𝕌𝕊𝔻𝕋 ℙ𝕣𝕚𝕔𝕖
 
-💥500  Flash USDT = 30$(Demo Order ) 
+💥800  Flash USDT = 30$(Demo Order ) 
 
 🔹25k  Flash USDT = 100$
 🔹50k Flash USDT =  120$
@@ -96,4 +96,4 @@ Telegram- http://t.me/cryptoTABFlasher
 
 Buy With Card 
 
-website : http://btc-flash.myshopify.com/
+website : 
