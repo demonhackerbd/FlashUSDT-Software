@@ -38,6 +38,6 @@ CONTACT ONLY FOR BUY Product
 Telegram- http://t.me/flashbtcusdt_support
 
 
-Buy With Card 
+Software Buy ===>>
 
 website :www.flashbtcusdt.com 
