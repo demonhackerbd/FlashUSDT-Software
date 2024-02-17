@@ -6,7 +6,7 @@ Crypto Wallets-
 3. bybit (BTC & USDT Only P2p/ Stake.com withdrawal Accepted ) BUT DONT Future Trad 
 
 
-What networks does it work on
+What networks And Wallet does it work on
 sᴏғᴛᴡᴀʀᴇ
 1. Server base application
 2. Blockchain Technology
