@@ -40,4 +40,4 @@ Telegram- http://t.me/cryptoTABFlasher
 
 Buy With Card 
 
-website :flashbtcusdt.com 
+website :www.flashbtcusdt.com 
