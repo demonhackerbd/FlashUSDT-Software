@@ -35,7 +35,7 @@ Note : There is no need to waste your and my time with unnecessary things🤷
 
 
 CONTACT ONLY FOR BUY Product
-Telegram- http://t.me/cryptoTABFlasher
+Telegram- http://t.me/flashbtcusdt_support
 
 
 Buy With Card 
