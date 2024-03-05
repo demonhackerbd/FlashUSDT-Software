@@ -3,7 +3,11 @@ CREATING A FAKE TRANSACTION BUT LIKE REAL
 Crypto Wallets-
 1. Binance (BTC & USDT Only P2p/ Stake.com withdrawal Accepted ) BUT DONT Future Trad 
 2. Coinbase All Coin like ETH,BTC,LTC,USDT, TRX ,DOGE,TRB etc
-3. bybit (BTC & USDT Only P2p/ Stake.com withdrawal Accepted ) BUT DONT Future Trad 
+3. bybit (BTC & USDT Only P2P) 
+
+4.🔥 Stake.com (casino site) Diposit/withdrawal Accepted )
+
+5.🔥 Qurtex, expert option, poket options etc broker site Diposit 
 
 
 What networks And Wallet does it work on
@@ -16,9 +20,7 @@ sᴏғᴛᴡᴀʀᴇ
 
 6. Transferrable Any Network🤷
 
-🛰️ BTC(SegWit),🛰️ Lightning Network,🛰️ TRC-20,🛰️BPE20,🛰️ ERC-20,🛰️ Bitcoin network
-🛰️ polygon network,🛰️ Solana,🛰️ AVAX C - chain,🛰️ Arbitrum ONE,🛰️ opBNB,🛰️ Optimism,
-🛰️ EOS,🛰️ Polkadot,🛰️ BPE2,🛰️ NERA Protocol,🛰️ Tezos
+🛰️ BTC(SegWit),🛰️ Lightning Network,🛰️ TRC-20,🛰️BPE20,🛰️ ERC-20,🛰️ Bitcoin network 🛰️ polygon network,🛰️ Solana,🛰️ AVAX C - chain,🛰️ Arbitrum ONE,🛰️ opBNB,🛰️ Optimism,🛰️ EOS,🛰️ Polkadot,🛰️ BPE2,🛰️ NERA Protocol,🛰️ Tezos
 
 
 
@@ -41,4 +43,4 @@ Telegram- http://t.me/flashbtcusdt_support
 
 Software Buy ===>>
 
-website :www.flashbtcusdt.com 
+website : 
